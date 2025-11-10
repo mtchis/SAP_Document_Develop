@@ -17,4 +17,4 @@ The folder has so many resources from below domain which will help you to unders
 ➡️ SERVICENOW
 ➡️ HEALTHCARE
 
-Link to access the folder: 
+Link to access the folder: https://drive.google.com/drive/mobile/folders/1CC_JccHRB9Li0VJVojWCwdsHZ0epmAXd?usp=sharing
